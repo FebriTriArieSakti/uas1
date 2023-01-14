@@ -38,6 +38,11 @@ dan setelah semuanya jadi lalu sekarang kita lihat hasil dari
 
 ![3](https://user-images.githubusercontent.com/115480501/211183826-bdf85ce0-f404-4a08-9a6b-b5209b0f9b8c.PNG)
 
+
+dan berikut link video :
+
+# https://youtu.be/hw-vxQ-HchY
+
 # Selesai dan terimakasih 
 
 
